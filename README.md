@@ -1,3 +1,3 @@
 # Centralized-Repository
-Hi! everyone get ready
+Hi everyone get ready!!
 Wishes from jismi
